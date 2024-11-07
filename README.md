@@ -1,1 +1,1 @@
-# bingoVer.1_2cdn2113
+# bingoCard_Ver1_2cdn2113
